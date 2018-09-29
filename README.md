@@ -1,0 +1,1 @@
+All take from [https://github.com/Russian-AI-Cup-2017]
